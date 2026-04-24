@@ -1,5 +1,5 @@
 [🍓](https://sleepyroseeee.straw.page) ,[ATA](https://sleepyroseee.atabook.org)
-![image_alt](https://i.imgur.com/6MbeD2L.jpeg)
+![image_alt](https://i.imgur.com/Mb8jMzh.png)
 <!--
 **sleepyroseee/sleepyroseee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
