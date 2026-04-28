@@ -1,4 +1,7 @@
-[🍓](https://taecho.straw.page) ,[ATA](https://sleepyroseee.atabook.org)
+“ 𝔥𝔢𝔞𝔯𝔱 , 𝔲𝔫𝔱𝔞𝔪𝔞𝔟𝔩𝔢 ..”
+
+[˗ˏˋ 🍓´ˎ˗](https://taecho.straw.page) ,
+  [♥ ata sign pls ♥](https://sleepyroseee.atabook.org)
 ![image_alt](https://i.imgur.com/Mb8jMzh.png)
 <!--
 **sleepyroseee/sleepyroseee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
