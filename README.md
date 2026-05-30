@@ -2,7 +2,7 @@
 
 [˗ˏˋ 🍓´ˎ˗](https://thvtae.straw.page),
   [♥ ata sign pls ♥](https://sleepyroseee.atabook.org)
-![image_alt](https://i.imgur.com/Mb8jMzh.png)
+![image_alt](https://imgur.com/a/iBJOhZN)
 <!--
 **sleepyroseee/sleepyroseee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
