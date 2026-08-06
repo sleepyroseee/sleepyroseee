@@ -1,4 +1,6 @@
-![image alt](https://i.imgur.com/fghJWvc.png)
+<h4 align="center">
+
+  ![image alt](https://i.imgur.com/fghJWvc.png)
 
 “𝓈𝓁𝑒𝑒𝓅 𝓁𝒾𝓀𝑒 𝒶 𝓌𝒾𝓃𝓉𝑒𝓇 𝒷𝑒𝒶𝓇..”
 
