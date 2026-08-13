@@ -11,3 +11,7 @@
 ![image_alt](https://i.imgur.com/ssRtbi9.png)
 ![image alt](https://i.imgur.com/cklYp7k.gif)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=nbh3xhgwlfveyfhttbtgyi6s0&cover_image=true&theme=novatorem&show_offline=true&background_color=150039&interchange=false&profanity=false&hide_remaster=true&bar_color=fffbf8&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+  𑣲. thank you !
+
+[pt-friendships](https://github.com/pt-friendships) w my lil brofher [5orrows](https://github.com/5orrows)
