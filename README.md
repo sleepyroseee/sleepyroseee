@@ -14,4 +14,4 @@
 
   𑣲. thank you !
 
-[pt-friendships](https://github.com/pt-friendships) w my lil brofher [5orrows](https://github.com/5orrows)
+[pt-friendships](https://github.com/pt-friendships) w my lil brother [5orrows](https://github.com/5orrows)
