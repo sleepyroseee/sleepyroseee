@@ -14,4 +14,6 @@
 
   𑣲. thank you !
 
+[pt-fashion](https://github.com/pt-fashion) as pony towns Kim Taehyung !
+
 [pt-friendships](https://github.com/pt-friendships) w my lil brother [5orrows](https://github.com/5orrows)
