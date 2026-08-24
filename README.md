@@ -6,8 +6,9 @@
 
 ![profileviews](https://komarev.com/ghpvc/?username=sleepyroseee&color=FFDBEF)
 
-[˗ˏˋ 🍓´ˎ˗](https://thvtae.straw.page),
+[˗ˏˋ 🍓´ˎ˗](https://thvtae.straw.page)
 
+  
   [♥ ata sign pls ♥](https://sleepyroseee.atabook.org)
 
 
