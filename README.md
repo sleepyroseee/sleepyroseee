@@ -1,11 +1,7 @@
 <h4 align="center">
 
-
-“𝓈𝓁𝑒𝑒𝓅 𝓁𝒾𝓀𝑒 𝒶 𝓌𝒾𝓃𝓉𝑒𝓇 𝒷𝑒𝒶𝓇..”
-
 ![profileviews](https://komarev.com/ghpvc/?username=sleepyroseee&color=AD8E89)
 
-[˗ˏˋ 🍓´ˎ˗](https://thvtae.straw.page)
 
   
   [♥ ata sign pls ♥](https://sleepyroseee.atabook.org)
