@@ -3,6 +3,8 @@
 ![profileviews](https://komarev.com/ghpvc/?username=sleepyroseee&color=AD8E89)
 
 
+[⋆𝓈𝓉𝓇𝒶𝓌⋆](https://darkwild.straw.page)
+
   
   [♥ ata sign pls ♥](https://sleepyroseee.atabook.org)
 
